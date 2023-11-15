@@ -1,0 +1,1 @@
+# wealthymind-tech
